@@ -1,3 +1,3 @@
 # 2025-01-14-Git
 
-- Fried rice.
+- Favourite food: Fried rice
