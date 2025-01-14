@@ -1,3 +1,3 @@
 # 2025-01-14-Git
 
-- Favourite food: Curry beef brisket rice
+- Favourite food: Yeung Zhou fried rice
